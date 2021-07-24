@@ -1,3 +1,3 @@
 # I_AM_BLESSED
 
-The Lord loves you
+The Lord loves you!
